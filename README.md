@@ -1,1 +1,0 @@
-# Japan-Digital-Twin-in-Healthcare-Market
